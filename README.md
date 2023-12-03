@@ -1,17 +1,16 @@
-USERNAME = @SIGUESIGUEGALACTIC 𓃠
-EL CONTACTO = oray92991@gmail.com 
-EL CONTACTO LA FAMILIA = THEE Dr Suzanne Sharland!
-COMMAND NOT FOUND "Well, Introduce Yourself Please" CHECK YOUR SPELLING AND/OR TRY AGAIN 
-HELLOW!\n 
-             ／＞　 フ
-            | 　_　_| 
-          ／` ミ＿xノ 
-         /　　　　 |
-        /　 ヽ　　 ﾉ             へ     ╱|、 ♡  ╱|、
-        │　　|　|　|       ૮  -   ՛ )  (˚ˎ 。7    (`   -  7
-      ／￣|  |　|　|         /   ⁻  ៸|   |、˜〵     |、⁻〵
-     (￣ヽ＿  _ヽ_)__)   乀 (ˍ, ل ل  じしˍ,)ノ じしˍ,)ノ
-      ＼二)
+USERNAME = @SIGUESIGUEGALACTIC 𓃠 EL CONTACTO = oray92991@gmail.com EL CONTACTO LA FAMILIA = THEE Dr Suzanne Sharland! COMMAND NOT FOUND "Well, Introduce Yourself Please" CHECK YOUR SPELLING AND/OR TRY AGAIN 
+HELLOW!
+
+\n 
+         🌸 ／＞　 フ
+         | 　_　_| 
+       ／` ミ＿xノ 
+      /　　　　 |
+    /　 ヽ　　 ﾉ             へ     ╱|、 ♡  ╱|、
+   │　　|　|　|       ૮  -   ՛ )  (˚ˎ 。7    (`   -  7
+／￣|　　 |　|　|         /   ⁻  ៸|   |、˜〵     |、⁻〵
+(￣ヽ＿_ヽ_)__)   乀 (ˍ, ل ل  じしˍ,)ノ じしˍ,)ノ
+＼二)
 \n
 ⠀⠀     ____                / |  __         _
    /   \   \ \ _ _ _ _ /   | / / _ _ _ /   \
