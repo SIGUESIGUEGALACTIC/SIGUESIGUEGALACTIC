@@ -1,5 +1,4 @@
-USERNAME = @SIGUESIGUEGALACTIC 𓃠 EL CONTACTO = oray92991@gmail.com EL CONTACTO LA FAMILIA = THEE Dr Suzanne Sharland! COMMAND NOT FOUND "Well, Introduce Yourself Please" CHECK YOUR SPELLING AND/OR TRY AGAIN 
-HELLOW!
+USERNAME = @SIGUESIGUEGALACTIC 𓃠 CONTACT = oray92991@gmail.com 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡔⣻⠁⠀⢀⣀⣀⡀⠀⠀⠀⠀⠀⠀⠀⠀                                                       
 ⠀⠀⠀⠀⢀⣾⠳⢶⣦⠤⣀⠀⠀⠀⠀⠀⠀⠀⣾⢀⡇⡴⠋⣀⠴⣊⣩⣤⠶⠞⢹⣄⠀⠀⠀                                            
 ⠀⠀⠀⠀⢸⠀⠀⢠⠈⠙⠢⣙⠲⢤⠤⠤⠀⠒⠳⡄⣿⢀⠾⠓⢋⠅⠛⠉⠉⠝⠀⠼⠀⠀⠀                                           
